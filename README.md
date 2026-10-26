@@ -2,6 +2,6 @@
 
 # Devendra Kumar
 
-3rd year Industrial and Production Engineering Student at Dr. BR Ambedkar NIT Jalandhar
+I'm an Industrial and Production Engineering Student at Dr. BR Ambedkar NIT Jalandhar
 
 📧 devendrakr1564@gmail.com 
